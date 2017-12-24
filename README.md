@@ -1,1 +1,0 @@
-# michaelstratman.github.io
